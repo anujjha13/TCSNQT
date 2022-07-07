@@ -1,4 +1,4 @@
-//https://studytosuccess.in/wp-content/uploads/2022/06/TCS-NQT-Solved-Paper-13th-Sept-2021-Slot-1.pdf
+https://studytosuccess.in/wp-content/uploads/2022/06/TCS-NQT-Solved-Paper-13th-Sept-2021-Slot-1.pdf
 
 
 
